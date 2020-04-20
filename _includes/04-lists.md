@@ -1,4 +1,4 @@
-:purple_heart: My favorite ways to pass the time are:
+My favorite ways to pass the time are:
 * Playing video games, such as:
   * Zelda
   * Borderlands 2
